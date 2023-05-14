@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Surr-01
+- 👋 Hi, I’m @Jenah_sn
 - 👀 I’m interested in technology
 - 🌱 I’m currently learning anything open towards me
 - 💞️ I’m looking to collaborate on anything really
